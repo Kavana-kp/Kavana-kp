@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Kavana 👋
 
 I’m Kavana K P, a fresher with a background in Electronics and Communication Engineering.
 
